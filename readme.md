@@ -22,4 +22,7 @@
 
 ## Amersfoort
 
+- Voorthuizen chalet nabij bossen (€555) [18,3 km - OV 51 min - Fiets 1 uur 9 min]: https://www.booking.com/Share-vGBKNu8
+- VELUWE CHALET PUTTEN - Private Garden and Sauna on Nationaal Park De Veluwe - Design Chalet with Cosy Setting (€) [17,1 km - OV 56 min - Fiets 1 uur 11 min]: https://www.booking.com/Share-yh2Xvz
+
 ## Nijmegen
